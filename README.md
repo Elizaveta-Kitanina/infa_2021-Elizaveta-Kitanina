@@ -1,1 +1,1 @@
-# infa_2021-Elizaveta-Kitanina
+# infa_2021_Elizaveta-Kitanina
